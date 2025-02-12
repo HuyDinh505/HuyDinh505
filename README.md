@@ -1,3 +1,4 @@
+Hi my name is Huy
 # 💫About Me :
 - 🔭 I'm currently working in Ho Chi Minh City
 - 🌱 I'm currently studying at SAIGON TEACHNOLOGY UNIVERSITY
